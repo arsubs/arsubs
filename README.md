@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @arsubs
+- 👀 I’m trying to archive as much of arbic subs as possible for preservation
